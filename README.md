@@ -1,0 +1,1 @@
+# bursada-temizlik
